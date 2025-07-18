@@ -3,7 +3,7 @@
 
 ![GIF image](https://github.com/user-attachments/assets/fb3c5233-91f0-4d91-afab-e4bf4fa117c2) ![GIF image](https://github.com/user-attachments/assets/93ad42bc-abb0-4f60-a4a3-14b9b6177a0c)
 
-⊰━━━━━━━━⊱𖤝⊰━━━━━━━━⊱⊰━━━━━━━━⊱𖤝⊰━━━━━━━━⊱⊰━━━━━━━━⊱𖤝⊰━━━━━━━━⊱
+⊰━━━━━━━━⊱𖤝⊰━━━━━━━━⊱⊰━━━━━━━━⊱𖤝⊰━━━━━━━━⊱
 
 ![GIF image](https://github.com/user-attachments/assets/77faaf97-0f8f-4342-988e-17354b174cd4) ![GIF image](https://github.com/user-attachments/assets/8a066291-825e-4053-9522-a0edda07e236)
 
