@@ -1,4 +1,9 @@
-𝗍𝗁𝖾 𝖽𝖺𝗇𝗀 𝖽𝗈𝗀 😭😭😭😭😭😭😭😭😭😭😭
+![IMG_7748](https://github.com/user-attachments/assets/a96b2bc9-3414-418a-95e8-aeebdce1ee94) 
+
+<img width="50" height="50" alt="IMG_7749" src="https://github.com/user-attachments/assets/ca295064-1b0f-43d5-91a6-6cdfa1d14468" /> 𝗍𝗁𝖾 𝖽𝖺𝗇𝗀 𝖽𝗈𝗀 😭😭😭😭😭😭😭😭😭😭😭
+
+<img width="2633" height="2261" alt="IMG_7745" src="https://github.com/user-attachments/assets/c36458be-da76-4af3-a06f-b88bdabfdcd0" />
+
 
 
 ![GIF image](https://github.com/user-attachments/assets/fb3c5233-91f0-4d91-afab-e4bf4fa117c2) ![GIF image](https://github.com/user-attachments/assets/93ad42bc-abb0-4f60-a4a3-14b9b6177a0c)
